@@ -1,4 +1,4 @@
-# Hi, I'm Noshank 👋  
+# Hi, I'm krishnamohan 👋  
 
 🎓 Computer Science Engineering Student @ MGIT  
 💡 Enthusiastic about Programming, Problem-Solving & Building Cool Projects  
